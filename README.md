@@ -126,3 +126,9 @@ You don't need any prior tech experience. We'll explain everything from scratch,
 * If you want to help improve this guide, check out our [**`CONTRIBUTING.md`**](./CONTRIBUTING.md) guidelines.
 
 Let's make cybersecurity accessible to everyone! Happy learning!
+
+
+
+
+If you're feeling generous, I wouldn't say no to a cup of coffee!
+Contact: +880 19219 64044
